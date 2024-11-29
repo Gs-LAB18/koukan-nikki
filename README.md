@@ -10,3 +10,5 @@ hogehoge
 
 ＞いでっち
 https://wa3.i-3-i.info/word11872.html
+
+めも　吉田
